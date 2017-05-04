@@ -12,3 +12,10 @@
 - Dimitri's on the Water
    - Gyro
    - Pickled Octopus
+
+## Places to Visit
+- Honeymoon Island
+  - One of the best beaches in the state
+- Amalie Arena to catch a :lightning: game (ice hockey)
+- Tarpon Springs Sponge Dock
+  - They were featured on Dirty Jobs with Mike Rowe
