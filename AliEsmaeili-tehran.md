@@ -3,4 +3,4 @@
 ## Places to Eat
 - Tehroon Cafe
 - Rooberoo Cafe
-- Masoodie Cafe
+- Masoodiyeh Cafe
