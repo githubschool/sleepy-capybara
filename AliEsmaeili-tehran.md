@@ -6,6 +6,9 @@
 - Masoodiyeh Cafe
 
 ## Paces to Visit
-- First
-- Second
-- Third
+- Sa'd Abad Palace
+- Contemporary Arts Museum
+- Golestan Palace
+- Niavaran Palace
+- City Theater
+- Vahdat Hall
