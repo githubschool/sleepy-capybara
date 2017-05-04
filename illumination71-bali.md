@@ -9,3 +9,4 @@
 ###Tourist Attractions
 
 - Kuta Beach
+- Shopping at Joger Market
