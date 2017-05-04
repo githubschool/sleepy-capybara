@@ -2,6 +2,7 @@
 
 ## Places to eat
 - Nerdvana
+  - Shrimp Diablo
 - Hutchin's BBQ
 - The Red Lantern
 - Daddy's Tacos
